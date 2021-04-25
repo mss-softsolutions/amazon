@@ -1,0 +1,2 @@
+im developer
+im stupid
